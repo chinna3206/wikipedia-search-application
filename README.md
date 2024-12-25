@@ -3,4 +3,5 @@
 
 Output:
 
-![Screenshot (214)](https://github.com/user-attachments/assets/12870844-4026-4a24-a210-0fab213b3fea)
+
+![Screenshot (6)](https://github.com/user-attachments/assets/da8680dc-f85c-4028-ba0c-2596644f2b38)
